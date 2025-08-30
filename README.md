@@ -20,3 +20,5 @@ Suggest new features: Have an idea for a new tool or analysis? We'd love to hear
 Contribute code: Submit a pull request with your improvements, new features, or bug fixes.
 Join the discussion: Share your expertise and ask questions in our project discussions. We're excited to see what we can accomplish together. For more information about our association, please visit our website. our website https://donations.orwebcraft.com has published ecologists association on YouTube is connecting many ecologists association groups, our YouTube channel, including vito technology star recordings of Solar Walk 2 recorded at Forest and nature preserves
 https://donations.orwebcraft.com/archive we have mast have android download archive of apps regarding astronomy and nature preserves , which we improve over time
+
+managed by Or Buskila
