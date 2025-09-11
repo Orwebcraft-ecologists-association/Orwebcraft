@@ -24,4 +24,7 @@ https://donations.orwebcraft.com/archive we have mast have android download arch
 and web version for computers of Solar System Scope that allow to surf the Sun solar system and other stars 
 https://donations.orwebcraft.com/solar-system-scope/
 
+added birds on earth bird live map from birdnet.cornell.edu
+https://donations.orwebcraft.com/birds-on-earth-birdnet-live-map/
+
 managed and owned by Or Buskila
