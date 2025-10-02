@@ -27,4 +27,9 @@ https://donations.orwebcraft.com/solar-system-scope/
 added birds on earth bird live map from birdnet.cornell.edu
 https://donations.orwebcraft.com/birds-on-earth-birdnet-live-map/
 
+birds on earth on a round globe, listen to radio stations while making greener futere while detecting birds submissions with simulator 
+https://donations.orwebcraft.com/birds-on-earth-radio-on-globe/
+
+
+
 managed and owned by Or Buskila
